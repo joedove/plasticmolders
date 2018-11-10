@@ -1,2 +1,0 @@
-# plasticmolders
-plastic molding services
